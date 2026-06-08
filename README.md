@@ -1,4 +1,4 @@
-# ApniBottle Karachi
+# ApniBottle
 
 Premium custom-branded water bottle solutions for restaurants, cafes, hotels, corporate offices, events, and businesses across Karachi.
 
